@@ -1,0 +1,1 @@
+myhamlet.com
